@@ -1,0 +1,62 @@
+
+# Suggested bad-ally bingo card squares
+
+- Name drops Sheryl Sandberg
+- Name drops Christina Sommers, TERFs, or other deeply problematic "feminists"
+- Lean In
+- Meritocracy
+- Non-ironic references to "Reverse sexism" or "misandry"
+- "That would never happen in my company"
+- Calls a women articulate
+- Refers to a feminist as angry / aggressive / offputting / …
+- Refers to a woman as shrill / hysterical / …
+- "You catch more flies with honey"
+- Says feminist activism scares women away from tech
+- Blames "awkward geeks" for abusive behaviour in tech
+- Wearables. Women like wearing things, right?
+- "Ask any woman you know, she'll tell you I'm a feminist"
+- Teaches girls to code; won't mentor women
+- Quotes woman he has power over in the workplace
+- Ignorant of employment equity legislation
+- Corporate redemption narrative
+- Wants a cookie for basic decency
+- ~~PIPELINE~~
+- "I asked a woman and she agreed with me"
+- Asserts other man's heart is in the right place
+- "I'm related to a woman" / Saw the light after birth of daughter
+- "If GoDaddy can change, anyone can!"
+- My mother taught me to respect women
+- "I've believed in women's rights my whole life"
+- "We're all in this together"
+- "Men's voices need to be heard too"
+- Quotes MLK; gets meaning reversed
+- "I consider myself an equalist / humanist"
+- "Lowering the hiring bar"
+- "You just have to be exceptional" / "Just be great"
+- "Women just need to speak up / speak out more"
+- "Well, we just need to hope things change"
+- "Things take time to change, you know"
+- Plaintive appeals for education
+- "Where are all the women"
+- "We put out a call, but no women applied"
+- Claims never to have seen evidence of sexism in tech
+- Wild, uninformed speculation on why women leave the field
+- "We need to study this more" on a point that's already clear
+- Claims it's womens' responsibility to "civilize" tech culture
+- Claims change is happening and women just need to be patient
+- Refers to grown women as "girls"
+- Refers to mixed-gender groups as "guys"
+- Tells marginalized ppl they just need thicker skin / to toughen up / to ignore the trolls
+- Frames oppression as a debate, with two equally valid "sides"
+- Frames harassment/sexism as something that "just happens"
+- Clearly thinks feminism started the moment they heard of it
+- "Men take risks by speaking out too, you know!"
+- Ignores systematic nature of bias / refers to "a few bad apples"
+- "You need to be a role model"
+- "Women have to balance kids/family"
+
+
+# Sources / References
+
+- https://twitter.com/concernedfems/status/520023816769388547
+- http://juliepagano.com/blog/2014/02/26/bad-ally-quiz/
