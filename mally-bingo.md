@@ -34,6 +34,7 @@
 - "Lowering the hiring bar"
 - "You just have to be exceptional" / "Just be great"
 - "Women just need to speak up / speak out more"
+- "You just need to try harder"
 - "Well, we just need to hope things change"
 - "Things take time to change, you know"
 - Plaintive appeals for education
@@ -54,7 +55,10 @@
 - Ignores systematic nature of bias / refers to "a few bad apples"
 - "You need to be a role model"
 - "Women have to balance kids/family"
-
+- "We have to fix things" - doesn't propose/demonstrate concrete actions
+- "We're doing everything we can"
+- "That's just the way the world is"
+- Says "culture" is problematic but not individual people
 
 # Sources / References
 
